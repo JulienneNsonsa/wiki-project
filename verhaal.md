@@ -1,4 +1,4 @@
-JOJO's Bizarre Adveture gaat over een de familie Joestar, van welk elk lid is voorbestemd om te vechten tegen bovennatuurlijke vijanden. Maar niet alleen hun vijanden zijn boven natuurlijk, de Joestar familie is dat ook. 
+JOJO's Bizarre Adveture gaat over een de familie Joestar, van welk elk lid is voorbestemd om te vechten tegen bovennatuurlijke vijanden. Ze vrchten tegen de mensen met krachten.  
 
 DEEL 1: Phantom Blood
 Het begint in de 19de eeuw waar we het begin van alles zien met Jonathan Joestar. Het speelt zich af in Engeland waar hij woont met zijn rijke familie. Op een dag komt er een nieuwe familie lid (zijn broer) bij hem wonen die Dio Brando heet. Deze broer is dan zijn aartsvijand geworden sinds de eerste dag dat ze elkaar hebben gezien. Dio gebruikt een stenen masker die hem onsterfelijk maakt om Jonathan te vernietgen. Jonathan ontwikkeld een kracht dat Hamon heet. Het is een ademhalingstechniek die levensenergie opwekt om te vechten, genezen en objecten te vernietigen. Deze kracht gebruikt JoJo dan om tegen Dio te vechten.
