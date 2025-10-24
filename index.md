@@ -9,7 +9,6 @@ Zo heb je:
 2. Joseph Joestar
 3. Giorno Giovanna
 
-Ik heb dit gekozen omdat ik de het leuk vond hoe de anime je altijd mee grijpt met de meest onverwachtte situaties en humor. 
-Het is echt iets dat je niet elke dag ziet.
+Deze anime is niet iets dat je elke dag ziet. Het heeft verschillende en originele humor.
 
 ![FotoVanBesteTijdperk](./img/JOJO’S%20BIZARRE%20ADVENTURE.jpg)

@@ -1,11 +1,22 @@
-Hier toon ik jullie wat voor mij de top drie beste Stands waren.
+In de anime zie dat wanneer ze gaan vechten dat er iets naast hun komt zweven. Dat is een Stand, Het is een soort van bijstander die altijd naast of boven de gebruiker zweeft. Het is een visuele manifestatie van een levende energie. Elke geruiker heeft maar een volledige Stand.
 
-Op de derde plaats
-![DerdeStand](./img/YAYAYAY.jpg)
+1. Six bullets
+    ![DerdeStand](./img/YAYAYAY.jpg)
 
-Op de tweede plaats
-![TweedeStand](./img/GER.jpg)
+2. Gold Experience Requiem
+    ![TweedeStand](./img/GER.jpg)
 
-Op de derde plaats
-![EersteStand](./img/Unknown.jpg)
+3. Star Platinum
+    ![EersteStand](./img/Unknown.jpg)
+
+4. Killer queen 
+    ![VierdeStand](./img/Killer%20Queen.jpg)
+
+5. Death 13
+    ![EersteStand](./img/Unknown.jpg)
+
+6. 
+
+
+
 
