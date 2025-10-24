@@ -1,4 +1,4 @@
-In de anime zie dat wanneer ze gaan vechten dat er iets naast hun komt zweven. Dat is een Stand, Het is een soort van bijstander die altijd naast of boven de gebruiker zweeft. Het is een visuele manifestatie van een levende energie. Elke geruiker heeft maar een volledige Stand.
+In de anime zie dat wanneer ze gaan vechten dat er iets naast hun komt zweven. Dat is een Stand, Het is een soort van bijstander die altijd naast of boven de gebruiker zweeft. Het is een visuele manifestatie van een levende energie. Elke geruiker heeft maar een volledige Stand. Hieronder vind u een paar voobeelden van stands
 
 1. Six bullets
     ![DerdeStand](./img/YAYAYAY.jpg)
@@ -15,7 +15,6 @@ In de anime zie dat wanneer ze gaan vechten dat er iets naast hun komt zweven. D
 5. Death 13
     ![EersteStand](./img/Unknown.jpg)
 
-6. 
 
 
 

@@ -10,6 +10,3 @@ Het was een goede overschakeling van oud naar nieuw. Ook al moest ik deze verand
 
 ![Stand gebruik](./img/Jotaro%20&%20Star%20platinum.jpg)
 ![Stand gebruik 2](./img/Unknown-2.jpg)
-
-
-
